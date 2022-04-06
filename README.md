@@ -12,3 +12,6 @@ Decided to leak becuz hes selling this shit for 20$
 
 ![unknown](https://user-images.githubusercontent.com/67010072/159161327-e6327c23-2a31-43f0-b1e9-d9c058ee76ab.png)
 <img width="537" alt="Screen Shot 2022-04-06 at 10 16 11 PM" src="https://user-images.githubusercontent.com/67010072/161983366-25275b43-3ba7-46ac-8276-c3233fb6d7fd.png">
+<img width="504" alt="Screen Shot 2022-04-06 at 10 19 17 PM" src="https://user-images.githubusercontent.com/67010072/161983983-b5a9b585-6776-4bc3-8d72-f4dd9abf2287.png">
+
+bruh everyone can do that shit 🥶 
